@@ -1,2 +1,2 @@
-# LSP
+.-.. ... .--.
 andaikan laptop matot
